@@ -1,2 +1,2 @@
 # 🏳️‍🌈 equals
-The purpose of equals.gay is to provide a central overview of what LGBTQIA+ is and how you can help the movement.
+No matter how you look, where you're from, which gender or sexual orientation you have, we're all equal. We're all humans.
